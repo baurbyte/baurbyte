@@ -10,4 +10,4 @@
 
 𝑎 𝑙𝑜𝑣𝑒 𝑓𝑜𝑟 𝑜𝑛𝑒 [**𝑝𝑒𝑟𝑠𝑜𝑛**](https://github.com/tianlogn) 𝑒𝑛𝑡𝑖𝑟𝑒𝑙𝑦 <br><br><br>
 
-<img width="481" height="519" alt="image" src="https://github.com/user-attachments/assets/14903381-c2a5-4868-85d1-f174a0a64a3c" />
+![tiêu đề ảnh](https://cdn.phototourl.com/free/2026-07-07-0a6da206-f03e-4d8f-8804-966d8aafabb8.png)
